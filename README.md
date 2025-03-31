@@ -42,7 +42,7 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
  
 - Pedophiles,Racists,Trans/Homophobes and Rape Jokers ( your not funny )
 
-- Haters for no reason.
+- People who just friend me js to unfriend like bro make some sense..
 
 - Exes who try to come back and beg. ( dni or your getting blocked perm )
 
