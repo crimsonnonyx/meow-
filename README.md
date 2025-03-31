@@ -49,5 +49,5 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
 
 - weird fandoms or proshippers etc
 
-- cyberbulliers ( like the first one )
+- cyberbulliers ( like the second one )
  --｡𖦹°‧--˚ ༘ 𖦹🐾⋆｡˚--✧˖°. 𝜗𝜚--
