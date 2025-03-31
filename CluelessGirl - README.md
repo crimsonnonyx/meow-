@@ -20,7 +20,7 @@ im not the type of person to start drama ! if i do i end it quickly (sensitivity
 ✧` ⊹  - DNI CRITERIA
       - People Who Bully Beginners ( if i do it i don't mean any of my words. )
       - People who copy other people. ( not cool dude? )
-      - People who just come up to me and say date me like GTFO.
+      - Pedophiles,Racists,Trans/Homophobes and Rape Jokers ( your not funny )
       - Haters for no reason.
       - Exes who try to come back and beg. ( dni or your getting blocked perm )
       - weird fandoms or proshippers etc.
