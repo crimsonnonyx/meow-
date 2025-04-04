@@ -1,5 +1,6 @@
 `` ୨ৎ ``
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3155xrirqclxkqoc5o4qnnxlella&cover_image=true&theme=default&show_offline=false&background_color=000000&interchange=false&bar_color=ffa8cb)](https://github.com/kittinan/spotify-github-profile)]
+
+![Image](https://github.com/user-attachments/assets/83c2e6cd-ae3e-48e8-8ff2-1d9203d55d9a)
   
   ( ``｡𖦹°‧  Everyone may interact and c+h , if i do not answer pls wait i may b offtab or very busy just w2i w me , and letters i love S , C , J , S , M , M , Z , ETC
       yayy pls interact !!! ★ `` )
