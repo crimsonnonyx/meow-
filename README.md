@@ -1,7 +1,11 @@
 `` ୨ৎ ``
 
 ![Image](https://github.com/user-attachments/assets/83c2e6cd-ae3e-48e8-8ff2-1d9203d55d9a)
-  
+
+i love natsu and not carly gang  
+
+
+
   ( ``｡𖦹°‧  Everyone may interact and c+h , if i do not answer pls wait i may b offtab or very busy just w2i w me , and letters i love S , C , J , S , M , M , Z , ETC
       yayy pls interact !!! ★ `` )
 
