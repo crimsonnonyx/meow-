@@ -6,7 +6,7 @@ i love natsu and not carly gang
 
 
 
-  ( ``｡𖦹°‧  Everyone may interact and c+h , if i do not answer pls wait i may b offtab or very busy just w2i w me , and letters i love S , C , J , S , M , M , Z , ETC
+  ( ``｡𖦹°‧  Everyone may interact and c+h , if i do not answer pls wait i may b offtab or very busy just w2i w me , and letters i love S , C , D , S , M , M , L , ETC
       yayy pls interact !!! ★ `` )
 
 𓏲 ๋࣭  ࣪ Read BYI .-- important stuff you should know about me xo!
